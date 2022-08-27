@@ -1,9 +1,9 @@
 
 ### 🌍 Informations:
 
-#### Hey, i'am xaze. Im Currently Working on vision an Private Project.
+#### Hey, i'am xaze. Im Currently Working on omen an Private Project.
 #### My discord tag: xaze#3910
-#### Project vision: https://discord.gg/B9hR3Mz2cr
+#### Project omen: https://discord.gg/B9hR3Mz2cr
 
 ---
 
